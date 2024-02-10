@@ -2,13 +2,13 @@ Güvenilir Siteleri Giriş Adresleri
 ===================================
 
 .. meta::
-   :google-site-verification: ou-LsaWFfXsFOEZMnNXX0nqF9d_44VpxWWd_DkuD8zw
+   :google-site-verification: c_oCYS4ThFbMw6EEZqfz3xzkhgVkLPVrchX_vctu5mw
 
 .. image:: images/betist-giris.jpg
    :width: 600
 
 
-## Güvenilir Bahis Siteleri Giriş Adresleri: Engellemelere Karşı Çözüm
+**Güvenilir Bahis Siteleri Giriş Adresleri: Engellemelere Karşı Çözüm**
 
 Türkiye'de bahis sektörü, yasal ve illegal olmak üzere ikiye ayrılır. Yasal bahis sektörü, Spor Toto Teşkilatı tarafından kontrol edilir ve tek bir platform üzerinden hizmet sunulur. Illegal bahis sektöründe ise birçok farklı bahis sitesi faaliyet gösterir. Bu siteler, Türkiye'de yasal olmadıkları için erişim engellerine maruz kalabilirler.
 
